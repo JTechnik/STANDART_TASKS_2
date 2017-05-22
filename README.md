@@ -1,0 +1,1 @@
+# STANDART_TASKS_2
